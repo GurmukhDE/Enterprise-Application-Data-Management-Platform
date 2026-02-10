@@ -218,7 +218,7 @@ Data Engineering Leader @ Bank of America
 
 - LinkedIn: [linkedin.com/in/gurmukhsingh-dataengineer](https://linkedin.com/in/gurmukhsingh-dataengineer)
 - GitHub: [@GurmukhDE](https://github.com/GurmukhDE)
-- Email: [Your professional email]
+- Email: sameertrailblazer@gmail.com
 
 ---
 
